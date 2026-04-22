@@ -1,5 +1,5 @@
 # 每日大赛电脑版 每日大赛网页最新入口mrds 每日大赛在线 每日大赛r星 每日大赛主题大赛 每日大赛今日 每日大赛66官网
-# 每日大赛电脑版：[https://www.mrds-kan.cloud](https://www.mrds-kan.cloud)
+# ☞每日大赛电脑版：[https://www.mrds-kan.cloud](https://www.mrds-kan.cloud)
 
 每日大赛 - 电脑版（[mrds-kan.cloud](https://www.mrds-kan.cloud)）
 
